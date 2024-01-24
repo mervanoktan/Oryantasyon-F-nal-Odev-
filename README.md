@@ -1,1 +1,1 @@
-# Oryantasyon-F-nal-Odev-
+# Oryantasyon-Fınal-Odev-
